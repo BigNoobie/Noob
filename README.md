@@ -1,0 +1,2 @@
+# Noob
+Noobie but Funkin
